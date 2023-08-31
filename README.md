@@ -1,2 +1,3 @@
 # KAGGLE
 what is my name ? am i ?
+ALL the ABOMINATIONS I CREATED ON KAGGLE WILL COME HERE 
